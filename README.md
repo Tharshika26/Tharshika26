@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi ther tharshika 👋
 
 <!--
 **Tharshika26/Tharshika26** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
